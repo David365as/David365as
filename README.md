@@ -3,7 +3,7 @@ Estoy interesado en la ciberseguridad y hacking etico, es posible que me gustari
 Estoy aprendiento Python y C#, me considero principiante y en el lenguaje en el que más me destaco más en python.
 Busco colocaborar con temas de ciberseguridad, aunque soy principiante podria ayudar en algo😅.
 Una forma de contactarme es por el gmail: "David365as@gmail.com", estare pendiente de cualquier tipo de mensaje que me llegue. 
-
+Discord: David365as#8948
 BYE👋
 
 <!---
